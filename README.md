@@ -1,1 +1,1 @@
-# socail-media-basics
+# social-media-basics
